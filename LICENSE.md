@@ -1,4 +1,4 @@
-# 
+# elite Token Sniper for meme coin sniper bot | arbitrage-opportunities & new-token-detection offers the most advanced meme coin sniper bot, with arbitrage-opportunities and
 
 
 
